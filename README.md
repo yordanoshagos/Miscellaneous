@@ -1,1 +1,1 @@
-i have added a file about the safety guidlines and fire safety training.
+I have added a file about AkiraChix safety guidlines policy and fire safety training.
